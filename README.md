@@ -9,3 +9,5 @@ B5:Nếu có hiển thị màng hình này:
 Chọn chi tiết khác 
 Chọn cài đặt mà không cần quyét
 ![b3](https://github.com/user-attachments/assets/32c6735c-a5bb-435c-8c25-c05736135d90)
+# VÌ LÀ APP TỰ CODE KHÔNG ĐƯA LÊN GGPLAY NÊN MÁY MỚI HỎI 
+# LIÊN HỆ DISCORD ĐỂ TRẢI NGHIỆM VIP 3 NGÀY
